@@ -26,7 +26,7 @@ If you have any suggestions to make to the Code or the selection itsself just gi
 
 Contributors names and contact info
 
-Zorlel  
+Zorlel 🅿👌
 [@Zorlel](https://twitter.com/Zorlel1)  
 @Zorlel#5698
 
